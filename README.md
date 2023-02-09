@@ -3,7 +3,7 @@
 ## 👨‍💻 About me
 
 - 🎓 My academic path has led me from Heidelberg (Economics & Ancient History) to Lisbon (Business Analytics). I am currently pursuing a PhD at Nova Information Management school, focusing on Data Science.
-- 🌱 I love learning 🗣️ languages, 🎾 playing Padel and 🖋️ writing 
+- 🌱 I love learning 🗣️ languages, 🎾 playing Padel, 🖋️ writing and 🕺🏼 dancing (Bachata \& Salsa)
 
 ---
 
